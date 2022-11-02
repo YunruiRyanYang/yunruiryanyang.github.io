@@ -1,2 +1,2 @@
-# yunruiryanyang.github.io-
+# yunruiryanyang.github.io
 personal website booga booga
